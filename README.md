@@ -1,1 +1,1 @@
-50 available color codes. To renew, refresh a page!
+50 available color codes. Refresh a page to renew! 
